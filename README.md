@@ -18,4 +18,5 @@ If the king doesn't move, then his subjects won't follow.
 ![Kaneki Ken](IMG_5320.jpeg)
 A fan art of ken kaneki.
 # Twisted
-![Twisted](
+![Twisted](IMG_5604.jpeg)
+A detailed pencil study of a shark turning upward. I wanted to capture the strong curve of the body and the tension in the jaw, using the mid-tone paper to build up the contrast between the sharp highlights and deep shadows.
