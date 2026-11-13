@@ -8,3 +8,6 @@ A still life study capturing the texture and lighting contrast of a raw egg.
 # Tomioka Giyu
 ![Tomioka Giyu](IMG_5902.jpeg)
 A fan art of water hashira
+# Angle
+![Angle](Untitled-1.gif)
+My first drawing in my laptop
