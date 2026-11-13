@@ -10,4 +10,7 @@ A still life study capturing the texture and lighting contrast of a raw egg.
 A fan art of water hashira
 # Angle
 ![Angle](Untitled-1.gif)
-My first drawing in my laptop
+My first digital drawing on my laptop
+# Lelouch 
+![Lelouch](IMG_6616.jpeg)
+If the king doesn't move, then his subjects won't follow.
