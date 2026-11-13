@@ -14,3 +14,6 @@ My first digital drawing on my laptop
 # Lelouch 
 ![Lelouch](IMG_6616.jpeg)
 If the king doesn't move, then his subjects won't follow.
+# Kaneki Ken
+![Kaneki Ken](IMG_5320.jpeg)
+A fan art of ken kaneki.
