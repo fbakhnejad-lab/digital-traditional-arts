@@ -20,3 +20,6 @@ A fan art of ken kaneki.
 # Twisted
 ![Twisted](IMG_5604.jpeg)
 A detailed pencil study of a shark turning upward. I wanted to capture the strong curve of the body and the tension in the jaw, using the mid-tone paper to build up the contrast between the sharp highlights and deep shadows.
+# Coffee Jelly
+![Coffee Jelly](IMG_4297.jpeg)
+Saiki K. in different poses and expressions
