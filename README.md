@@ -5,3 +5,6 @@ A vibrant study of form and texture, capturing the intricate layers and natural 
 # Raw Egg
 ![Raw Egg](IMG_7868.jpeg)
 A still life study capturing the texture and lighting contrast of a raw egg.
+# Tomioka Giyu
+![Tomioka Giyu](IMG_5902.jpeg)
+A fan art of water hashira
